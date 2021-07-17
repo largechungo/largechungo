@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @largechungo
+- 👀 I’m an epic hardcore gamer
+- 🌱 Every soul has its dark
+- 💞️ UwU
+- 📫 Epic Mailbox
